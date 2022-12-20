@@ -1,6 +1,6 @@
-![alivat0r](https://user-images.githubusercontent.com/84487353/208517209-b467cc88-3e2f-4650-a3c7-a7a8db7bf65d.png)
+![di0xazin-e](https://user-images.githubusercontent.com/84487353/208517209-b467cc88-3e2f-4650-a3c7-a7a8db7bf65d.png)
 
-# Hey Y'all! I'm "alivat0r" 👋
+# Hey Y'all! I'm "di0xazine" 👋
 
 I am just a guy in California, I do not know how to code or do anything super major in software development but it does not meam I am willing to learn how. I see the good in technology and that I want to learn how to do things like coding so then I am able to put myself to the test. 
 
